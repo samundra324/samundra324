@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @samundra324 
+- 👋 Hi, I’m samundra
